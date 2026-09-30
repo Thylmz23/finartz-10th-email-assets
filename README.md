@@ -1,0 +1,1 @@
+# finartz-10th-email-assets
